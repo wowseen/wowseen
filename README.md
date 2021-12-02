@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @wowseen
+- 👀 I’m interested in simple coding
